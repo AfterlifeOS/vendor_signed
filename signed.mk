@@ -13,10 +13,9 @@ F1X
 RAYAN
 HUNK
 androidnagibator
-Ｖｉｐｅｒ🇳🇵
 IverzAsterix
 NILOY
 Sabrina
 psycogenesis
-Eren Yeager
+Sukuna
 Sozosha Team

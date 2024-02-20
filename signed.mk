@@ -1,7 +1,7 @@
 Romeo_Delta_Wishkey
 Djampt
 aepranata
-RyzenForce
+SuperXorn
 ExWhyZed9
 Itseunbinn
 sweetbtrfly

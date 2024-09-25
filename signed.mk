@@ -1,7 +1,6 @@
-Romeo_Delta_Wishkey
+Romeo
 Djampt
 aepranata
-SuperXorn
 ExWhyZed9
 Itseunbinn
 sweetbtrfly
@@ -13,7 +12,7 @@ F1X
 RAYAN
 HUNK
 androidnagibator
-IverzAsterix
+Iverz
 NILOY
 Rex
 psycogenesis
@@ -31,4 +30,3 @@ bmwtheseries
 Bava7325
 JassiV
 BMWxKIBRIA
-Drenzzz

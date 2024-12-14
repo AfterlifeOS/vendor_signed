@@ -15,7 +15,7 @@ Iverz
 NILOY
 Rex
 psycogenesis
-Sukuna
+sukuna
 Sozosha Team
 AssunZain
 franlop77

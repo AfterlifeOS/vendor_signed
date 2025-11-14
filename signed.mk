@@ -19,7 +19,7 @@ sukuna
 Sozosha Team
 AssunZain
 franlop77
-MrTopiA
+𝙩𝙧𝙖𝙣𝙌𝙪𝙞𝙡𝙖
 Noobbeast
 OnettBoots
 Skyy丨アラタ

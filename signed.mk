@@ -41,3 +41,4 @@ Jayed
 OnettBoots&Yaseakun
 Kenskuyy
 Nazephyrus
+attack_dns24

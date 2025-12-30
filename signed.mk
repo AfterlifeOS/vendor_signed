@@ -41,6 +41,7 @@ Jayed
 OnettBoots&Yaseakun
 Kenskuyy
 Nazephyrus
+attack_dns24
 ℝ𝕖𝕧𝕖𝕣𝕤𝕖𝕕ℝ𝕦𝕝𝕖𝕣༆𖣘
 BllsszzXD
 RenzAlt

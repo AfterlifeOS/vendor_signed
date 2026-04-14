@@ -38,7 +38,7 @@ Byben
 SMGReborn
 Hans
 Jayed
-OnettBoots&Yaseakun
+OnettBoots-Yaseakun
 Kenskuyy
 Nazephyrus
 attack_dns24

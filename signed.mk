@@ -54,6 +54,4 @@ PARBINDAR7
 kAiF
 Hexdare
 FARHAN_MUH_TASIM
-prpjzz
-Luxured
 Asmodeus-OOS
